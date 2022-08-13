@@ -1,1 +1,0 @@
-# rickoslyder.github.io
